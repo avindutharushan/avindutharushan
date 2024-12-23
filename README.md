@@ -8,7 +8,7 @@
 - 🌱 I’m currently reading Graduate Diploma in Software Engineering at IJSE
 - 💞️ I’m looking to collaborate on building websites and web apps, developing enterprise applications and software architecture
 - 📫 Email me via avindutharushan2002@gmail.com to contact
-- 💬 Text me on WhatsApp +94713910417
+- 💬 Text me on WhatsApp +94768425039
 
 ---
 
